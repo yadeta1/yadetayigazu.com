@@ -1,0 +1,1 @@
+# yadetayigazu.com
